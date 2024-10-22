@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on AI projects...
 - 📫 How to reach me ... egodfreyokorie@gmail.com
 - 😄 Pronouns: ...He/Him
-- ⚡ Fun fact: ...A performing actor
+- ⚡ Fun fact: ...A creative writer
 
 <!---
 NuelGodfrey/NuelGodfrey is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
